@@ -2,7 +2,7 @@
 
 # 👋 Hi, I'm Rohit Singh
 
-### Software Engineer & Computer Science Student
+Computer Science Student
 
 📌 **Graphic Era Hill University, Dehradun**  
 
