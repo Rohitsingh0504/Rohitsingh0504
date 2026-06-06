@@ -6,7 +6,7 @@ Computer Science Student
 
 📌 **Graphic Era Hill University, Dehradun**  
 
- **Reach me at:** [rohitsingh0405@gmail.com](mailto:rohitsingh45672@gmail.com)
+ **Reach me at:** [rohitsingh45672@gmail.com](mailto:rohitsingh45672@gmail.com)
 
 <div align="center">
 
